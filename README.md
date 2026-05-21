@@ -1,4 +1,4 @@
 # noentiendogitt
-Ayuda saquem,e de aqio
+Ayuda saquemme de aqui
 
 hola como estas
